@@ -5,8 +5,8 @@
 - 💞️ I’m looking to collaborate on ..bisness.plateforme
 - 📫 How to reach me ...courriel 1:---menagemoi.soumission@gmail.com---cleaner service at home or bisness place
 - courriel 2: Panda1987021927@gmail.com---Clothes store online shop
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 
+- ⚡ aux plaisirs de me faire conaitre davantage: ...
 
 <!---
 Boutchoubebe/Boutchoubebe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
